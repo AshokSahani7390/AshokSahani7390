@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there 👋<br><br>Nice meeting you, I'm Ashok Sahani!<br><br>🔭 I’m currently working with Future Intern<br>💬 Ask me about Web development related stuff<br>📫 How to reach me: Twitter -  LinkedIn - @Ashok Sahani<br>😄 Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing games with my friends
+Hi there 👋<br><br>Nice meeting you, I'm Ashok Sahani!<br><br>🔭 I’m currently working on new Skills<br>💬 Ask me about Web development, Vibe Coding & Ai Engineering related stuff<br>📫 How to reach me: Twitter -  LinkedIn - @Ashok Sahani<br>😄 Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing games with my friends
 
 
 ## 🌐 Socials:
